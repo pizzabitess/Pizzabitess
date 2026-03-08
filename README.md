@@ -1,8 +1,8 @@
-<img width="720" height="333" alt="Screenshot_20260304-165809" src="https://github.com/user-attachments/assets/c15ee3f7-0461-4144-a7f9-b8e7d201aa88" />
+<img width="720" height="441" alt="Screenshot_20260307-191107" src="https://github.com/user-attachments/assets/5ef10170-31f3-492f-a81a-c6123303e1b6" />
 
-
-bassie and eclipse kin, doubles dniuid.
+eclipse and bassie kin, doubles dniuid.
 
 c+h enc always even if im already sitting with someone.
 
+w2i, im usually afk or offtab ^ ω ^ !!
 
